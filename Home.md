@@ -1,0 +1,12 @@
+`# _**Games Played
+- [[CS2]]
+- [[Valorant]]
+- [[GTA5]]
+- [[The Legend of Zelda Breath of the Wild]]
+- [[Red Dead Redemption 2]]
+- [[Hades]]
+- [[The Witcher 3]]
+- [[The Last of Us]]
+- [[Minecraft]]
+- [[The Last of Us Part 2]]
+- 
